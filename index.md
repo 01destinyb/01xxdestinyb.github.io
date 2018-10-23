@@ -1,5 +1,5 @@
 # MY  Heart Has No Brain !  <h1>
-Hello my name is __ Destiny Benjamin __ , I am a college student at El Centro college I am africa American. I am here because this
+Hello my name is __Destiny Benjamin__ , I am a college student at El Centro college I am africa American. I am here because this
 program thats going help me alot in life , This is a early college program so i get to start a little early in college.
 
 I wanna be a __social worker__ in the future you have to go 2 years for a sociogy degree and go 2 more years for a bahelors degree
