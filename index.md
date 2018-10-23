@@ -1,7 +1,8 @@
 # MY  Heart Has No Brain !  <h1>
 Hello my name is __ Destiny Benjamin __ , I am a college student at El Centro college I am africa American. I am here because this
-program thats going help me alot in life , This is a early college program so i get to start a little early in college .
-I wanna be a __ social worker __ in the feature you have to go 2 years for a sociogy degree and go 2 more years for a bahelors degree
+program thats going help me alot in life , This is a early college program so i get to start a little early in college.
+
+I wanna be a __social worke__ in the feature you have to go 2 years for a sociogy degree and go 2 more years for a bahelors degree
 but when i graduate from school if i finsh this early program good i will graduate with my sociogy degree thats 2 years * i will not have to do. *    I play sports at Roosevelt that what high school i go to in oak cliff its a good school here and there,
 __ i am 5'11 i am 17 years old i am in 11 grade and working two jobs. __ My feature college is TSU southern University i think they our the cats something like that to get into
 they college it is 25,271 every year that alot of money , but im get it some how my parents work all day i dont see my dad .I was responsible for my house whole , at the age of 14 years old i use so play a game call school , use to play like i
